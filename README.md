@@ -1,0 +1,1 @@
+# karo-silver-02500
